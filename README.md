@@ -1,1 +1,0 @@
-# Staj-Uygulamasi-6
